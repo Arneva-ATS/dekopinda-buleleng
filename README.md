@@ -1,1 +1,1 @@
-# dekopinda-buleleng
+# dekopinda-karanganyar
